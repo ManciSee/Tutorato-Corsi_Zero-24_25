@@ -4,7 +4,7 @@ Questo spazio è dedicato agli studenti che seguono il corso e vogliono approfon
 
 ## Calendario delle Lezioni
 
-Puoi consultare il calendario aggiornato delle lezioni di tutorato [qui](corsozero_inf_dmi_unict).
+Puoi consultare il calendario aggiornato delle lezioni di tutorato [qui](https://studentiunict-my.sharepoint.com/:x:/g/personal/mncsrg01a20c351k_studium_unict_it/ESjWM90DVrpGsD43Wc3VSaUBQ_Qe871oG5JStv7nZIESZQ).
 
 ## Contatti
 
